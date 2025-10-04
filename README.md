@@ -1,2 +1,0 @@
-# polotuspossumus-coder-fortheweebs
-Fortheweebs
